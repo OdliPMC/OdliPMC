@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing as of the moment, I'm kinda still new to the prospect of coding and programming as a whole.
 - 📫 How to reach me : odliplamenco@gmail.com, @lokiraccz on Discord, and OdliPMC on Facebook!
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I really don't know what I'm doing :3
+- ⚡ Fun fact: I'm a college student and I really don't know what I'm doing :3
 
 <!---
 OdliPMC/OdliPMC is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
